@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi 1v1 lol👋
 
 <!--
 **unblocked-1v1-lol/unblocked-1v1-lol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
